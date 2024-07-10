@@ -7,7 +7,6 @@
 
 - ⚡ Fun fact **Sometimes i think i am too funny.**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
